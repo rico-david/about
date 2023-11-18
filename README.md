@@ -1,4 +1,4 @@
-# [Your Name]
+# David Rico
 
 ## About Me
 
